@@ -1,0 +1,1 @@
+Ball Sort Puzzle, a color sorting game, is a fun and relaxing game that entertains and stimulates your brain! Quickly sort the colored balls in the tubes until all the same colors are together in the same tube. A challenging yet relaxing game to exercise your brain!
